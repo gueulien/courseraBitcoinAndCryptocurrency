@@ -1,2 +1,0 @@
-# courseraBitcoinAndCryptocurrency
-# courseraBitcoinAndCryptocurrency
